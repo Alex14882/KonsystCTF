@@ -1,0 +1,3 @@
+имя отца этого человека
+
+wkayiknsmuimnxitmbmwbacayiknxwabayiknnqemnrdmoqdnnqem
